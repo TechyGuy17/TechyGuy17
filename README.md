@@ -1,3 +1,4 @@
+[![ko-fi](https://ko-fi.com/img/githubbutton_sm.svg)](https://ko-fi.com/I3I8JAPAI)
 ### Hi there 
 
 Hello, my name is TechyGuy, but you can call me Techy! 
